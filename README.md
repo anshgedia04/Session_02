@@ -1,6 +1,6 @@
 # HTML Notes 
 
-📑 [View My Detailed Notes (PNG)](https://drive.google.com/file/d/1kKWw-YJASpXB4wBbA4BFLoOh-FAdXM0n/view?usp=sharing)
+📑 [View My Detailed Notes (PNG)](https://drive.google.com/file/d/1ghMoi-vjVGDLMR_ZZA1fKruIg12AhHjc/view?usp=sharing)
 
 
 ## 📌 Key Topics Learned
